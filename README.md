@@ -6,3 +6,6 @@ All designs shown here have been created by DAVID MARTÍNEZ.
 
 
 [![Stand-A-ANDROIDTV.jpg](https://i.postimg.cc/cJW2rL1q/Stand-A-ANDROIDTV.jpg)](https://postimg.cc/YvXbPkm8)
+
+
+[![Stand-for-HDMI.jpg](https://i.postimg.cc/8cFNtzrK/Stand-for-HDMI.jpg)](https://postimg.cc/N2w30YDm)
